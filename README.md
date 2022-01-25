@@ -1,1 +1,0 @@
-Nombre: Sharon Chullunquia Rosas
