@@ -1,3 +1,3 @@
 Hola mundo :)
 
-modificación culminada :D
+modificación culminada
